@@ -1,6 +1,6 @@
 UX designer/Interaction designer
 
-User Experience Design in University of the Arts London
+User Experience Design in UAL
 
-Digital Media Technology in Hunan University
+Digital Media Technology in HNU
 
