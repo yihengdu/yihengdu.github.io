@@ -1,4 +1,4 @@
-# 杜倚衡
-# UX designer/Interaction designer
-# User Experience Design in University of the Arts London
-# Digital Media Technology in Hunan University
+杜倚衡
+UX designer/Interaction designer
+User Experience Design in University of the Arts London
+Digital Media Technology in Hunan University
